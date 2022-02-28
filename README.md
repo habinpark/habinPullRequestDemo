@@ -1,6 +1,6 @@
 # habinPullRequestDemo
 for MTEC 1001
 
-My Repo is the bestest repo that has ever existed in the history of the universe.
+My Repo is litearlly the best repo that has ever existed in the entire history of the universe.
 
-Limgrave is my grave many times over...
+By the Tree Sentinel I remain defeated...
